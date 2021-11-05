@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @sophiatinoco.
+- 👀 I’m interested in SSL for drone tracking.
+- 🌱 I´m a Telecommunications Engineer (mayor in Sound and Image Engineering). I’m currently studying a MSc in Acoustical Engineering.
+- 📫 How to reach me: s.tinoco@alumnos.upm.es or Sofia Tinoco Galafate at LinkedIn
